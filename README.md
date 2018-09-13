@@ -8,3 +8,4 @@ Pourtant cette personne survécu à la déflagration,
 et fut transformé en un train !!!
 Ce train se prénomme maintenant <em>THOMAS 2 : LE RETOUR</em>,
 son objéctif est dominer le monde en déraillant tous les *300 mètres* !!!
+c'est ainsi que aucun train Sncb ne fut plus jamais à l'heure.
